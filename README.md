@@ -1,2 +1,2 @@
 # odin-recipes
-NK gero pertrai
+hehehe
